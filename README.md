@@ -1,1 +1,0 @@
-# rayatech-test
